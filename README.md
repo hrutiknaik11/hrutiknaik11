@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **hrutiknaik@gwmail.gwu.edu**
 
-- ⚡ Fun fact ****
+- ⚡ Fun fact **For some reason I love a 9-5 Job**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
